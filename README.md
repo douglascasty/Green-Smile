@@ -1,1 +1,1 @@
-# Green-Smile
+# GreenSmile
